@@ -1,0 +1,2 @@
+# latihan12
+hayatiguchi
